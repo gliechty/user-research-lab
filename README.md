@@ -78,4 +78,4 @@
 #### 9) 5
 #### 10) 35
 
-## Notes: Loves cocktails, but a fan of looking up how to do it, not lovong the interface....more of an on the fly kind of guy. Has plemty of bottles, but dislikes downloading anf doing new things.
+## Notes: Loves cocktails, but a fan of looking up how to do it, not lovong the interface....more of an on the fly kind of guy. Has plenty of bottles, but dislikes downloading anf doing new things.
